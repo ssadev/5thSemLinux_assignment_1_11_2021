@@ -1,2 +1,0 @@
-# 5thSemLinux_assignment_1_11_2021
-# 5thSemLinux_assignment_1_11_2021
